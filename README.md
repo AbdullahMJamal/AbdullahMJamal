@@ -25,4 +25,5 @@ Computer Networks & Security student · Certified Ethical Hacker · Founder of O
 ## Work with me
 Stuck retyping documents, answering the same questions or chasing manual tasks? Tell me what it is and I'll tell you honestly whether it can be automated.
 
-📩 [LinkedIn](https://www.linkedin.com/in/abdullahmjamal) · 
+[LinkedIn](https://www.linkedin.com/in/abdullahmjamal) · [X](https://x.com/Abdullah_AMJ_)
+
